@@ -1,2 +1,2 @@
 # Sito-Turistico-di-Genova
-It'a only scolastic material
+It's a  school material
